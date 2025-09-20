@@ -1,1 +1,1 @@
-i literally have so many people i want to be friends with on this game but um..the issue is they r all at docks..andddi dont go to docks... im usually at bakery or the de area...i m too scared to approach people Brah Sorry :/
+there's so many people i want to be friends with on this game but um..the issue is they r all at docks..andddi dont go to docks... im usually at bakery or the de area...i m too scared to approach people Brah Sorry :/
